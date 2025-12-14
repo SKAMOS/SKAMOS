@@ -1,4 +1,4 @@
-- 👋 Hi, I’m SK AMOS✨
+- 👋 Hi, I’m Huncho Tariq✨
 - 👀 I’m interested in Information Technology
 - 🌱 I’m currently learning Information Technology
 - 💞️ I’m looking to collaborate on Maseno University
